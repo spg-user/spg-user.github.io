@@ -15,3 +15,5 @@ Paul Potts wuchs in Fishponds, einem Vorort von Bristol, auf. Er besuchte die Ma
 
 Zitat von Paul Potts:
 > Manchmal wartet die Chance des Lebens gleich um die Ecke, manchmal muss man etwas länger suchen.
+
+<img src="https://de.wikipedia.org/wiki/Paul_Potts#/media/Datei:PP_Rhyl_UK_Pavilion_Theatre.jpg"/>
