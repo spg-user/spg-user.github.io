@@ -12,3 +12,6 @@ Paul Potts wuchs in Fishponds, einem Vorort von Bristol, auf. Er besuchte die Ma
 * 2014 Home
 * 2017 On Stage
 * 2018 Winter Dreams
+
+Zitat von Paul Potts:
+> Manchmal wartet die Chance des Lebens gleich um die Ecke, manchmal muss man etwas länger suchen.
